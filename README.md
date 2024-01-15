@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @BryonSavero
-- 👀 I’m interested in Artificial Intelligence (AI) Intern 
+- 👀 I’m currently majoring in  Artificial Intelligence (AI).
 - 🌱 I’m currently studying in Universiti Sains Malaysia (USM),Penang
 - 📫 How to reach me? 
 email: bryonsavero@gmail.com
